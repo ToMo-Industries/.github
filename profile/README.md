@@ -1,1 +1,1 @@
-![](./developers-developers-developers-developers-developers-developers-developers-developers-developers-developers-developers.png)
+![](https://raw.githubusercontent.com/ToMo-Industries/.github/main/profile/developers-developers-developers-developers-developers-developers-developers-developers-developers-developers-developers.png)
